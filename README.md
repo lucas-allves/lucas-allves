@@ -2,7 +2,7 @@
 
 - **Data scientist in progress...**
 - Biochemist and Master in Biotechnology at [UFSJ](https://www.ufsj.edu.br/).
-- Pesquisador pela [UFSC](https://ufsc.br/). 
+- Research at [UFSC](https://ufsc.br/). 
 - Teacher and content publisher.
 - Enthusiastic about the financial market
 - 🇧🇷 Living in Divinopolis, Minas Gerais, Brazil
